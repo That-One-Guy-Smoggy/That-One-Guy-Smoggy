@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @That-One-Guy-Smoggy
-- 👀 I’m interested in Programing, Physics, Vifdeogames
+- 👀 I’m interested in Programing, Astrophysics, Vifdeogames
 - 😶‍🌫️ I’m looking to collaborate on any project
 - 📫 How to reach me franciscocasesguaita@gmail.com
 
